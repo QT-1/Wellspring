@@ -1,2 +1,2 @@
 # Wellspring
-Wellspring Info/Wiki
+Welcome to the Wellspring Info/Wiki!
